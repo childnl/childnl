@@ -1,0 +1,4 @@
+-  Hi, I’m @childnl
+-  I’m interested in ...Programming and Tech Hardware
+-  I’m currently learning ...Web Design
+-  Reach me ... @childthemenace on IG
